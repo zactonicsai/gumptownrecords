@@ -1,2 +1,0 @@
-# gumptownrecords
-Record Production Company
